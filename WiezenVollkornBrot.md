@@ -1,4 +1,4 @@
-# Weizen Volkorn Brot
+# Weizen Vollkorn Brot
 
 ### Hefeteig
 
